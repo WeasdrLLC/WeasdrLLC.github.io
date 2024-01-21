@@ -2,5 +2,5 @@
 "Fuck you asshole" CEO
 
 WEASDR LLC
-CUM
-support email = weasdrllc.info@gmail.com
+
+  support email = weasdrllc.info@gmail.com
